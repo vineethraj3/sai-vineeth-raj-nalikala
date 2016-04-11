@@ -1,1 +1,0 @@
-# sai-vineeth-raj-nalikala
